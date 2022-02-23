@@ -1,1 +1,1 @@
-# Quantium-Virtual-Internship-Forage---Retail-Strategy-and-Analytics
+# Quantium-Virtual-Experience-Forage-Data-Analysis-Retail-Strategy-and-Analytics
